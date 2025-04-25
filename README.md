@@ -1,6 +1,6 @@
 <p align="center"> <img src="https://files.catbox.moe/feq8ma.png">
 <p align="center">
-someone please help me find the original image source for this this is my favourite piece of art
+SHOUTOUT TO KARMA FOR FINDING THE ARTIST FOR ME, GO CHECK OUT @minheeboo ON TUMBLR FOR MORE BANGERS LIKE THIS!
 
 <p align="center">
 ——————
