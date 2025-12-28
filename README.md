@@ -6,7 +6,7 @@ I like this image a lot it makes me laugh (ac @minheeboo)
 ——————
 
 <p align="center">
-i don't really play too often anymore but im still willing to interact with most !
+i don't really play too often anymore but im still open to interact ! :3 
 
 <p align="center">
 marauders fan unfortunately, i dont support jkr
