@@ -3,7 +3,7 @@
  <p align="center">
  ─────────────────
   ‎ 
-<p align="center"> <a href=https://rentry.co/carterhorton><img src="https://file.garden/ZhGfr3tGggibKDqL/rentry%20texttt.png">‎<a href=https://rentry.co/kaorubutt><img src="https://file.garden/ZhGfr3tGggibKDqL/friends%20textt.png"></a>
+<p align="center"> <a href=https://8show.straw.page/><img src="https://file.garden/ZhGfr3tGggibKDqL/about%20me%20text.png">‎<a href=https://rentry.co/kaorubutt><img src="https://file.garden/ZhGfr3tGggibKDqL/friends%20text%202.png"></a>
 ‎ <p align="center">
 ‎ $\texttt{\color{#fed8ea}collection of stamps of my fav things, all made by me X3}$
 
