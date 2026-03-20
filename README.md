@@ -2,9 +2,7 @@
 <img src="https://file.garden/ZhGfr3tGggibKDqL/mini%20jewy" height="200" >
  <p align="center">
  ─────────────────
-  ‎ 
-<p align="center"> <a href=https://8show.straw.page/><img src="https://file.garden/ZhGfr3tGggibKDqL/straw%20text.png">‎<a href=https://rentry.co/kaorubutt><img src="https://file.garden/ZhGfr3tGggibKDqL/friends%20text%202.png"></a>
-‎ <p align="center">
+  <p align="center">
 ‎ $\texttt{\color{#fed8ea}collection of stamps of my fav things, all made by me X3}$
 
 <p align="center">
