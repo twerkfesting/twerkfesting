@@ -11,4 +11,4 @@
  <p align="center">
  ─────────────────
   <p align="center">
-  not necessarily a dni but if you use an asian name and ure not asian im gonna automatically assume you have no life, read some history books and reevaluate ur life choices
+  not necessarily a dni but if you use an asian name and you're not asian i'm gonna automatically assume you have no life + prolly won't take you seriously lol
