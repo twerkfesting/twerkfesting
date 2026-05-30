@@ -2,7 +2,7 @@
 ⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔
  
  <p align="center">
-i like siwan and a lot of things. check out my rentry + sign my ata (linked on 1st rentry)
+i like siwan!!! ..and a lot of things. check out my rentry + sign my ata (linked on 1st rentry)
 <p align="center">
 please int if we have similar interests!! i am very awkward at first unless i am passionate about the topic but i'll warm up to you.
 
