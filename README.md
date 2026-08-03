@@ -17,4 +17,3 @@ not a dni necessarily, but if you use an asian name and you aren't asian i will 
   <img src="https://file.garden/ZhGfr3tGggibKDqL/9b9fa63f.gif" />
 </p>
 
-[click this for a surprise](https://fluffle.cc/bisbald)
