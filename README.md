@@ -1,5 +1,4 @@
-<p align="center">
-![](https://komarev.com/ghpvc/?username=twerkfesting&color=d47f9e&label=fans)
+
 
 <p align="center">
 ⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔
