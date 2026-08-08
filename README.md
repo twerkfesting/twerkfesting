@@ -9,17 +9,15 @@
 please int if we have similar interests!! i am very awkward at 
 <br> first unless i am passionate about the topic but i'll warm up to you.
  <p align="center">
-  .
+ <img class="one" src="https://file.garden/ZhGfr3tGggibKDqL/9b9fa63f.gif" width="120" height="120"><br>
+</p>
   <p align="center">
 i would prefer not to interact with people under 15 or over 20,
 <br> and i do NOT want to interact with darkshippers or ex friends. 
    <p align="center">
 not a dni necessarily, but if you use an asian name and you
  <br> aren't asian i will not take you seriously.
-
-<p align="center">
- <img class="one" src="https://file.garden/ZhGfr3tGggibKDqL/9b9fa63f.gif" width="120" height="120"><br>
-</p>
+<br></br>
 
 <p align="center">
 probably with
