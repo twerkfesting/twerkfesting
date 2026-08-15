@@ -1,5 +1,5 @@
 <p align="center">
-  <a href="https://fluffle.cc/hab7t">main</a> ‎‎‎‎ ‎ ‎ ♡ ‎‎‎‎ ‎ ‎ 
+  <a href="https://everymanhybrid.mmm.page/">main</a> ‎‎‎‎ ‎ ‎ ♡ ‎‎‎‎ ‎ ‎ 
   <a href="https://rentry.co/crackheadlullaby">matching</a> ‎‎‎‎ ‎ ‎ ♡ ‎‎‎‎ ‎ ‎ 
   <a href="https://namggi.atabook.org/">ata</a>
 </p>
