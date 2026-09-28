@@ -23,7 +23,13 @@ not a dni necessarily, but if you use an asian name and you
 probably with
  <a href="https://github.com/YAXIKITTY">liv</a> or
   <a href="https://github.com/Eviluke">karma</a> or
-  <a href="https://github.com/wishlizx">lizzy</a> ♡
+  <a href="https://github.com/wishlizx">lizzy</a> or
+  <a href="https://github.com/trenkir">cheryl</a> 
+  ♡
+
+
+   <p align="center">
+ <img class="one" src="https://file.garden/ZhGfr3tGggibKDqL/trenkir.gif" width="266" height="150"><br>
 </p>
 <br></br>
 <p align="center">
