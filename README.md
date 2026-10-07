@@ -21,10 +21,10 @@ not a dni necessarily, but if you use an asian name and you
 
 <p align="center">
 probably with
+<a href="https://github.com/trenkir">cheryl</a> or
  <a href="https://github.com/YAXIKITTY">liv</a> or
   <a href="https://github.com/Eviluke">karma</a> or
-  <a href="https://github.com/wishlizx">lizzy</a> or
-  <a href="https://github.com/trenkir">cheryl</a> 
+  <a href="https://github.com/wishlizx">lizzy</a> 
   ♡
 
 
