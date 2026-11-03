@@ -1,8 +1,7 @@
 <p align="center">
-  <a href="https://rentry.co/tensimm">main</a> ‎‎‎‎ ‎ ‎ ♡ ‎‎‎‎ ‎ ‎ 
+  <a href="https://koschei.lurk.me/">main</a> ‎‎‎‎ ‎ ‎ ♡ ‎‎‎‎ ‎ ‎ 
   <a href="https://rentry.co/crackheadlullaby">matching</a> ‎‎‎‎ ‎ ‎ ♡ ‎‎‎‎ ‎ ‎ 
-  <a href="https://namggi.atabook.org/">ata</a> ‎‎‎‎ ‎ ‎ ♡
-  <a href="https://guns.lol/myunggi">guns.lol</a>
+  <a href="https://namggi.atabook.org/">ata</a> ‎‎
 </p>
 <p align="center">
 ⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔
