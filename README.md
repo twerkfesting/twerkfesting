@@ -24,8 +24,10 @@ probably with
 <a href="https://github.com/trenkir">cheryl</a> or
  <a href="https://github.com/YAXIKITTY">liv</a> or
   <a href="https://github.com/Eviluke">karma</a> or
+  <a href="https://github.com/EvilYaoi">najm</a> or
   <a href="https://github.com/wishlizx">lizzy</a> 
   ♡
+  <br> cuteness~
 
 
    <p align="center">
